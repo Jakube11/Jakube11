@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Jakube11
-- 👀 I’m interested in Programming
-- 🌱 I’m currently learning Python.
+I’m @Jakube11
+I am a professional procrastinator
+I am interested in absolutely fuckall
